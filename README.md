@@ -1,4 +1,3 @@
 - Здраво я @YNWolf
-- 🌱 читаю.. зачем читать?
 - 📫 How to reach me? YNWolf#3512 (i'm in parkour off server, gamers house, memeology, action sandbox the lounge and my new server https://discord.gg/XXpGKYkvFT)
 - (my server is not finished yet)
